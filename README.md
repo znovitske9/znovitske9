@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @znovitske9
 - 👀 I’m interested in Golf
-- 🌱 I’m currently learning investing in Real Estate
+- 🌱 I’m currently learning to invest in Real Estate and I am currently looking to acquire my first property.
 - 💞️ I’m looking to collaborate on N/A
 - 📫 How to reach me: Email -> Zachary.Novitske@school.com
 
